@@ -1,0 +1,2 @@
+# people
+Join sideproject.club
